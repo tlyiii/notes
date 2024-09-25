@@ -1,3 +1,3 @@
 # Book List
 
-Book and Dagger - Elyse Graham
+- Book and Dagger - Elyse Graham
