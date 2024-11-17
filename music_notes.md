@@ -10,11 +10,11 @@ Ain't that ashame not till 1955
 ## Dave Brubeck 
 Throughout the 1950s and 1960s, the quartet released several influential albums, including *Jazz Goes to College* (1954), *Jazz: Red Hot and Cool* (1955), and *Time Further Out* (1961)
 
-Esham
+## Esham
 *Closed Casket* (1994)
 Detroit Rap. **good shit**
 
-TMC DJ set
+## TMC DJ set
 10.09.24 @ Skinny Dennis in Brooklyn
 
 Kris Kristofferson - "Getting By, High and Strange" - this was definitely the first song, as Kristofferson had just passed away
