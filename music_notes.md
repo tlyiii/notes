@@ -57,3 +57,77 @@ Detroit Rap. **good shit**
 - Little Jimmy Dickens - "It May Be Silly (But Ain't It Fun)"
 - Tanya Tucker - "Horseshoe Bend" and "California Cotton Fields"
 - Rusty & Doug - "Going Down the Road"
+
+## 11.15.24 @ Soft Junk in Nashville
+
+The Youngbloods - "Don't Play Games"
+
+Black Oak Arkansas - "Hot and Nasty"
+
+Angelo Badalamenti - "The Pink Room" - I know this was played between bands, as I wanted to use some stuff that sounded like the coolest possible version of intermission music
+
+The Soft Boys - "You'll Have to Go Sideways" - Robyn Hitchcock happened to be in attendance at the show and I'd already planned to play this as more "intermission music," so that was fun
+
+The Jesus and Mary Chain - "Sidewalking" [7" Mix]
+
+Nashville Pussy - "Go, Motherfucker, Go"
+
+Spoon - "The Hardest Cut"
+
+10cc - "Baron Samedi"
+
+Dr. John - "Gris-Gris Gumbo Ya Ya" and "Mama Roux"
+
+Roky Erickson - "Two Headed Dog" and "I Think of Demons"
+
+Grinderman - "Worm Tamer"
+
+Bad Brains - "Banned in D.C."
+
+Thin Lizzy - "Angel from the Coast"
+
+Nervous Curtains - "Devastator"
+
+The dB's - "Black and White"
+
+13th Floor Elevators - "Tried to Hide" and "Reverberation (Doubt)"
+
+Jimmy Cliff - "You Can Get It If You Really Want"
+
+The Slickers - "Johnny Too Bad"
+
+Sly & The Family Stone - "In Time" and "Skin I'm In"
+
+Alex Cameron - "Candy May"
+
+AC/DC - "Hell Ain't a Bad Place to Be" and "Overdose"
+
+Dion - "Runaround Sue"
+
+The Shirelles - "Will You Love Me Tomorrow"
+
+Carl Smith - "Here Comes That Sin Again"
+
+Psychic Ills - "Depot"
+
+Spider Bags - "Long White Desert Rose"
+
+Blackfoot Gypsies - "I Feel Like Dyin'"
+
+Roxy Music - "Do the Strand"
+
+Billy Ocean - "Loverboy"
+
+Shocking Blue - "Long and Lonesome Road"
+
+Brian Eno - "The True Wheel"
+
+The Velvet Underground - "What Goes On"
+
+Nancy Sinatra & Lee Hazlewood - "Summer Wine"
+
+Mick Farren - "Mona (A Fragment)"
+
+Joe Jackson - "Another World"
+
+The Walker Brothers - "Nite Flights"
