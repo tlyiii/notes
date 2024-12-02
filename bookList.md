@@ -11,4 +11,9 @@ Book and Dagger, Elyse Graham draws on personal histories, letters, and declassi
 
 
 - Wild at Heart by Barry Gifford
-  
+
+- The Demon of Unrest by erik Larson
+
+- The City Is Up for Grabs
+    How Chicago Mayor Lori Lightfoot Led and Lost a City in Crisis
+    By Gregory Royal Pratt
