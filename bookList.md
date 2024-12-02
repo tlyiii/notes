@@ -1,40 +1,38 @@
 # Book List
 
-- Book and Dagger - Elyse Graham
-Book and Dagger, Elyse Graham draws on personal histories, letters, and declassified OSS files to tell the story of a small but connected group of humanities scholars turned spies. 
+### Non-Fiction
+- **Book and Dagger** by Elyse Graham  
+  *Draws on personal histories, letters, and declassified OSS files to tell the story of a small but connected group of humanities scholars turned spies.*
 
-- The Lost Museum - The Nazi conspiracy to steal the worlds greatest works of art.
+- **The Lost Museum**  
+  *The Nazi conspiracy to steal the world's greatest works of art.*
 
+- **The City Is Up for Grabs** by Gregory Royal Pratt  
+  *How Chicago Mayor Lori Lightfoot led and lost a city in crisis.*
 
-- Wild at Heart by Barry Gifford
+- **ADHD for Smart Ass Women** by Tracy Otsuka  
+  *How to fall in love with your neurodivergent brain.*
 
-- The Demon of Unrest by erik Larson
+- **A Short History of the World in 50 Lies** by Natasha Tidd  
 
-- The City Is Up for Grabs
-    How Chicago Mayor Lori Lightfoot Led and Lost a City in Crisis
-    By Gregory Royal Pratt
+- **Same as Ever** by Morgan Housel  
+  *A guide to what never changes.*
 
-- ADHD for Smart Ass Women
-How to Fall in Love with Your Neurodivergent Brain
-By Tracy Otsuka
+- **Hidden Potential** by Adam Grant  
+  *The science of achieving greater things.*
 
-- A Short History of the World in 50 Lies
-Natasha Tidd (Author)
+- **How Big Things Get Done** by Bent Flyvbjerg and Dan Gardner  
+  *The surprising factors that determine the fate of every project, from home renovations to space exploration and everything in between.*
 
-- Same as Ever
-A Guide to What Never Changes
-By Morgan Housel
+---
 
-- Second Act
-by Henry Oliver
+### Fiction
+- **Wild at Heart** by Barry Gifford  
 
--Hidden Potential
-The Science of Achieving Greater Things
-By Adam Grant
+- **The Demon of Unrest** by Erik Larson  
 
+---
 
-- How Big Things Get Done
-The Surprising Factors That Determine the Fate of Every Project, from Home Renovations to Space
-Exploration and Everything In Between
-By Bent Flyvbjerg and Dan Gardner
+### Memoirs/Biographies
+- **Second Act** by Henry Oliver  
 
