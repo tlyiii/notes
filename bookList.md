@@ -33,6 +33,9 @@
 
 ---
 
+The Chicago Architecture Foundation’s Official Guide to Chicago Architecture
+3. Chicago: A Biography” by Dominic Pacyga
+
 ### Memoirs/Biographies
 - **Second Act** by Henry Oliver  
 
