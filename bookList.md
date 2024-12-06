@@ -59,7 +59,7 @@
 ## True Crime
 
 - *[In Cold Blood](https://www.goodreads.com/book/show/168642.In_Cold_Blood)* by Truman Capote  
-- *[The Stranger Beside Me](https://www.goodreads.com/book/show/176147.The_Stranger_Beside_Me)* by Ann Rule  
+- *[The Stranger Beside Me](https://www.goodreads.com/book/show/15654.The_Stranger_Beside_Me?ac=1&from_search=true&qid=1fcK0FCW8T&rank=1)* by Ann Rule  
 - *[I’ll Be Gone in the Dark](https://www.goodreads.com/book/show/35068432-i-ll-be-gone-in-the-dark)* by Michelle McNamara  
 
 ---
