@@ -27,7 +27,7 @@
 - **How Big Things Get Done** by Bent Flyvbjerg and Dan Gardner  
   *The surprising factors that determine the fate of every project, from home renovations to space exploration and everything in between.*
 
-- *[As If!: The Oral History of Clueless as told by Amy Heckerling and the Cast and Crew]. (https://www.goodreads.com/book/show/23492773-as-if?from_search=true&from_srp=true&qid=BqpIxkcFUF&rank=7)* 
+- *[As If!: The Oral History of Clueless as Told by Amy Heckerling and the Cast and Crew](https://www.goodreads.com/book/show/23492773-as-if?from_search=true&from_srp=true&qid=BqpIxkcFUF&rank=7)*  
 
 - *[Factfulness: Ten Reasons We're Wrong About the World–and Why Things Are Better Than You Think](https://www.goodreads.com/book/show/34890015-factfulness)* by Hans Rosling  
 
