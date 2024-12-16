@@ -24,6 +24,8 @@
 - **Hidden Potential** by Adam Grant  
   *The science of achieving greater things.*
 
+- **Valley So Low** by Jared Sullivan  
+
 - **How Big Things Get Done** by Bent Flyvbjerg and Dan Gardner  
   *The surprising factors that determine the fate of every project, from home renovations to space exploration and everything in between.*
 
