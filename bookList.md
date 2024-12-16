@@ -35,6 +35,9 @@
 
 - *[Thinking, Fast and Slow](https://www.goodreads.com/book/show/11468377-thinking-fast-and-slow)* by Daniel Kahneman  
 
+- **Family Romance: John Singer Sargent and the Wertheimers** by Jean Strouse  
+  *An exploration of the relationship between artist John Singer Sargent and the Wertheimer family, prominent art dealers, and how their portraits reflected Edwardian cultural and social dynamics.*
+
 ---
 
 ## Self-Improvement
@@ -64,26 +67,4 @@
 
 - *[In Cold Blood](https://www.goodreads.com/book/show/168642.In_Cold_Blood)* by Truman Capote  
 - *[The Stranger Beside Me](https://www.goodreads.com/book/show/15654.The_Stranger_Beside_Me?ac=1&from_search=true&qid=1fcK0FCW8T&rank=1)* by Ann Rule  
-- *[I’ll Be Gone in the Dark](https://www.goodreads.com/book/show/35068432-i-ll-be-gone-in-the-dark)* by Michelle McNamara  
-
----
-
-## Memoirs/Biographies
-
-- **Second Act** by Henry Oliver  
-
----
-
-## Fiction
-
-- **Wild at Heart** by Barry Gifford  
-
-- **The Demon of Unrest** by Erik Larson  
-
----
-
-## Chicago Architecture and History
-
-- **The Chicago Architecture Foundation’s Official Guide to Chicago Architecture**  
-
-- **Chicago: A Biography** by Dominic Pacyga  
+- *[I’ll Be Gone
