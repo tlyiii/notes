@@ -7,6 +7,9 @@
 - **Book and Dagger** by Elyse Graham  
   *Draws on personal histories, letters, and declassified OSS files to tell the story of a small but connected group of humanities scholars turned spies.*
 
+- **A Spy Among Friends: Kim Philby and the Great Betrayal** – Ben Macintyre (2014)  
+  *One of the best books on Philby, this reads like a thriller while detailing his friendships, betrayals, and ultimate defection. It reveals how he fooled British and American intelligence for decades.*
+
 - **The Lost Museum**  
   *The Nazi conspiracy to steal the world's greatest works of art.*
 
